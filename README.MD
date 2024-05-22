@@ -4,3 +4,5 @@
 ### Readme from legacyempire
 
 - pushed from legacyempire desktop
+
+- be serious, from ayo
